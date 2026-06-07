@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GALI040401HGTRGVA3
+GALI040401HGTRGVA3
